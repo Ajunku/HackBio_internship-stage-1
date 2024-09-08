@@ -5,7 +5,7 @@
 Authors (@slack): Sanzida Akhter Anee (@Sanzida), Sk Arif (@arif_shaikh), Mina Zakaria (@mina_zakaria) and Benedict Orile Ajunku (@orile)
 
 
-## Video Link
+## Video Presentation Link
 (https://www.linkedin.com/posts/activity-7238165714333790208-G8HH?utm_source=share&utm_medium=member_desktop)
 
 ## Introduction
